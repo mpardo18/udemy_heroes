@@ -1,0 +1,7 @@
+# Batman
+
+Batman es un superhéroe ficticio que aparece en los cómics estadounidenses publicados por DC Comics . El personaje fue creado por el artista Bob Kane y el escritor Bill Finger , [1] [2] y apareció por primera vez en Detective Comics # 27, en 1939. Originalmente llamado "Bat-Man", el personaje también es mencionado por epítetos tales como Caped Crusader, Dark Knight y el mejor detective del mundo. [5]
+
+La identidad secreta de Batman es Bruce Wayne , un rico playboy , filántropo y propietario estadounidense de Wayne Enterprises . Después de presenciar el asesinato de sus padres, el Dr. Thomas Wayne y Martha Wayne cuando era niño, juró venganza contra los delincuentes, un juramento moderado por el sentido de la justicia. Bruce Wayne se entrena física e intelectualmente y crea una persona inspirada en los murciélagos para combatir el crimen. [6]
+
+Batman opera en la ciudad ficticia de Gotham City con la asistencia de varios personajes de apoyo, incluido su mayordomo Alfred , el comisionado de policía Gordon y aliados vigilantes como Robin . A diferencia de la mayoría de los superhéroes, Batman no posee superpoderes ; más bien, confía en su inteligencia intelectual, destreza física, habilidades de artes marciales, habilidades de detective, ciencia y tecnología, gran riqueza, intimidación y voluntad indomable. Una gran variedad de villanos conforman la galería de Batman , incluido su archienemigo , el Joker .
